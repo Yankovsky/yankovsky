@@ -9,8 +9,8 @@ Shortly after the outbreak of the Russian-Ukrainian war, I left Russia and now I
 My dream is to participate in some world-changing project, to make a positive change to the world.
 
 How to reach me:
-- [Telegram](http://t.me/OhAndrey)
-- [LinkedIn](www.linkedin.com/in/andrey-yankovsky)
+- [Telegram](https://t.me/OhAndrey)
+- [LinkedIn](https://www.linkedin.com/in/andrey-yankovsky)
 - [WhatsApp](https://wa.me/+79999816256)
 - [Email](mailto:YankovskyAndrey@gmail.com?subject=[GitHub]%20Hey%20Andrey!)
 
