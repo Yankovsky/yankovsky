@@ -14,4 +14,4 @@ How to reach me:
 - [WhatsApp](https://wa.me/+79999816256)
 - [Email](mailto:YankovskyAndrey@gmail.com?subject=[GitHub]%20Hey%20Andrey!)
 
-[Cover melody 🎸](https://www.dropbox.com/s/mhcge6lzkcjuekz/Resume.mp3?dl=0)
+[Я – программист 🎸](https://www.dropbox.com/s/mhcge6lzkcjuekz/Resume.mp3?dl=0)
