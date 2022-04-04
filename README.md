@@ -4,7 +4,7 @@ My name is Andrey and I've been programming for over 10 years – web developmen
 
 In 2021 I enrolled at [Yandex School of Data Science](https://academy.yandex.com/dataschool/) and since then I've been immersed in the astonishing world of machine learning.
 
-Shortly after the outbreak of the Russian-Ukrainian war, I left Russia and now I am looking for a job.
+Shortly after the outbreak of the Russian-Ukrainian war, I left Russia and now I am looking for a job with relocation.
 
 My dream is to participate in some world-changing project, to make a positive change to the world.
 
